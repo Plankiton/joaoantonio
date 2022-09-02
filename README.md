@@ -4,7 +4,7 @@ A ideia desse projeto é nada mais nada menos que ser um ótimo exemplo de como 
 
 ## Por que "joaoantonio"?
 
-O nome é em homenagem aos joões antonios e deixa-los felizes, amo vocês!
+O nome é em homenagem aos joões antonios e quero deixá-los felizes! amo vocês :love:!
 
 Primeiro, joaoantonio é um projeto velho, mas ele é um velho cringe que se mete a moderninho...
 
